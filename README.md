@@ -57,6 +57,9 @@
 
 <img width="1773" height="2780" alt="Image" src="https://github.com/user-attachments/assets/68b216e2-1541-4370-89c8-121a23a92be1" />
 
+<img width="3088" height="1785" alt="Image" src="https://github.com/user-attachments/assets/78429d41-9693-4f7d-951c-6c4f63764717" />
+(𝐀 𝐖𝐈𝐏 𝐟𝐨𝐫 𝐌𝐲 𝐅𝐫𝐢𝐞𝐧𝐝 𝐃𝐓𝐂𝐈𝐘𝐒 𝐜𝐨𝐧𝐭𝐞𝐬𝐭!)
+
 <div align="center">
 
 𝑭𝑨𝑵𝑫𝑶𝑴𝑺 𝑰𝑴 𝑶𝑵 𝑹𝑵:
